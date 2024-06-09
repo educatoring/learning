@@ -1,10 +1,3 @@
 # learning
-
 # github
-
-
-
 # HELLO
-
-
-
